@@ -6,4 +6,4 @@ The price can be negotiatable
 To buy, or ask questions.
 Telegram:@BTCFLASHERLIFETIME
 WARNING, I AM NOT RESPONSIBLE FOR ANY WRONGDOING, EDUCATIONAL PURPOSES ONLY!
-https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fbtctools.store%2Fwp-content%2Fuploads%2F2023%2F07%2F20230705_144436.png&f=1&nofb=1&ipt=15d4d8c20b7381322dbf690dcbf8258e9408ca921dca91f453a0ae6ea4b3a245&ipo=images
+![Screenshot_2024-08-03-13-08-37-728_com my flashbtc](https://github.com/user-attachments/assets/80df889b-337a-4b8e-8104-e65165edbac4)
