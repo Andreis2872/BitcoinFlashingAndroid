@@ -10,7 +10,7 @@ BITCOIN FLASHER,(for android)
 
 🔥The price can be negotiatable 🔥
 
-💎To buy, or ask questions 👉 Telegram:@BTCFLASHERLIFETIME💎
+💎To buy, or ask questions 👉 Telegram:@Segavick2💎
 
 Status:WORKING ✅ 
 
