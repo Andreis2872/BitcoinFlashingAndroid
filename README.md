@@ -1,7 +1,7 @@
 BITCOIN FLASHER,(for android) THE BEST DEAL IN THE MARKET
 send FAKE bitcoins to any wallet! someone else's or your own! 100% transferable and spendable
 (No max per transaction)
-Price:(80usdt)
+Price:(60 usdt)(LIMITED TIME SALE)
 The price can be negotiatable 
 To buy, or ask questions.
 Telegram:@BTCFLASHERLIFETIME
