@@ -6,7 +6,7 @@ BITCOIN FLASHER,(for android)
 
 🐦(No max per transaction)🐦
 
-💰 Price:(80 usdt) 💰 
+💰 Price:(25 usdt) 💰 
 
 🔥The price can be negotiatable 🔥
 
